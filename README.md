@@ -23,7 +23,7 @@
 
 
 
-## <b> Let's Connect..!</b>🤝
+## <b>Contact</b>
 <br>
 <div align='left'>
 
